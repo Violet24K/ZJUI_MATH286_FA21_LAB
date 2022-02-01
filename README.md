@@ -1,4 +1,4 @@
-# ZJUI_MATH286_FA21_LAB
+# ZJUI_MATH286_FA21
 DO NOT COPY THE WORK FOR THE LAB!  
 I am not responsible for your plagiarism!  
 
